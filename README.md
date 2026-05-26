@@ -25,7 +25,7 @@ Me interesa especialmente la documentación técnica y el monitoreo ambiental en
 ## 👥 Conecta conmigo
 📍 Valladolid, Yucatán, México  
 🔗 [LinkedIn](https://www.linkedin.com/in/cen-canche-alejandra-393b35382)  
-✉️ aleja@example.com *(puedes poner tu correo académico o profesional)*  
+ 
 
 ---
 
